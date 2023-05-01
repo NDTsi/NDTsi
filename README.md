@@ -1,4 +1,8 @@
-### Hi there 👋
+### **Hi there 👋 My Name is Nefeli!**
+
+:dolphin: Naturally Curious, Wanderlust and Foodie Enthusiast.  
+:star2: Causes: Science & Technology *  Health *  Arts & Culture.  
+:mailbox: To collaborate, please [Email me](mailto:n.tsigkri@gmail.com)  
 
 <!--
 **NDTsi/NDTsi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
